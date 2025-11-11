@@ -20,6 +20,5 @@
 ![slide 18](https://github.com/user-attachments/assets/d50765ad-47a8-48fd-89b2-225226c54007)
 ![slide 19](https://github.com/user-attachments/assets/d142c344-bafb-411d-bc2f-8816ad35379f)
 ![slide 20](https://github.com/user-attachments/assets/febf7b39-0f89-4c4a-84a1-988bff9ee0b0)
-![slide 21](https://github.com/user-attachments/assets/8d89aa4f-36cc-4ec7-9b14-269e8a4b5c7f)
 ![slide 22](https://github.com/user-attachments/assets/c922b8d8-69a3-424f-9eeb-f1fe35c43058)
 
